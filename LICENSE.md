@@ -1,4 +1,4 @@
-
+Ulysses for macOS exclusive Plugin - AI assistant and custom themes offers the most advanced Ulysses for macOS plugin, with AI assistant and custom themes. Ideal for professionals.
 
 
 
